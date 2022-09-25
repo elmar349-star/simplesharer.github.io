@@ -1,1 +1,0 @@
-# simplesharer.github.io
